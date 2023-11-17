@@ -1,15 +1,27 @@
 # Tamil-AI-cinema-tools-by-monk
 generative AI tool for Art in Tamil cinema contributed by madavan and saktheeswaran
-
+https://www.astrolog.org/labyrnth/script.txt
 http://www.script-o-rama.com/snazzy/dircut.html
-
+https://www.sonyclassics.com/
+https://sfy.ru/?script=last_temptation_of_christ_1988
 http://www.script-o-rama.com/snazzy/table3.html
-
+https://sfy.ru/?script=last_temptation_of_christ_1988
+https://www.scribd.com/doc/16665787/Lawrence-of-Arabia
+https://sfy.ru/
+https://sfy.ru/transcript/pursuit_of_happyness_2006_ts
 http://www.script-o-rama.com/snazzy/table4.html
-
+http://www.script-o-rama.com/snazzy/table4.html
+https://sfy.ru/
 https://www.quora.com/Where-can-I-find-a-PDF-format-of-a-script-of-any-good-Tamil-movie
 
 https://filmstry.net/index.php/welcome/scriptRead/19
+http://www.script-o-rama.com/snazzy/table3.html
+https://imsdb.com/genre/Action
+
+http://www.godamongdirectors.com/
+http://www.godamongdirectors.com/
+
+https://imsdb.com/all-scripts.html
 
 https://www.scripts.com/script/mudhalvan_14198
 https://www.tamilmoviescreenplay.com/
